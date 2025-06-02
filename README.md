@@ -18,3 +18,8 @@ V Sloveniji se podobna preoblikovanja dogajajo predvsem v mestih, kot sta Ljublj
 Evropski prostor torej ponuja raznolike oblike sprostitve in kulturnega raziskovanja. Od obmorskih mest z bogato gastronomsko tradicijo, do alpskih vasic z možnostjo zimskih športov ali pohodništva – povsod je mogoče najti ponudbo, ki se povezuje z naravno in kulturno dediščino. In kjer se pojavi potreba po večerni sprostitvi, mnogi izberejo prizorišča, ki ponujajo širše doživetje – ne zgolj igre na srečo, temveč tudi glasbo, gastronomijo in druženje.
 
 Ta preplet različnih doživetij postaja značilnost sodobnega evropskega turizma, kjer obiskovalci ne iščejo le enega elementa, temveč želijo doživeti celoten spekter možnosti. Tako tudi Slovenija vse bolj sledi tem smernicam, saj lokalne skupnosti, podjetniki in ustanove prepoznavajo vrednost v raznolikosti ponudbe. Več tega razumevanja pomeni tudi več priložnosti za obiskovalce, ki želijo več kot zgolj potovanje – želijo spomin, izkušnjo in občutek povezanosti s krajem.
+Povezani viri:
+
+[Uravnoteženje sodobnega tempa z lokalnimi doživetji](https://www.storeboard.com/blogs/do-it-yourself/crazytime/6195561)
+
+[Povezovanje izkušenj skozi interaktivne platforme in potovanja](https://www.zybuluo.com/liveslovenija/note/2599243)
